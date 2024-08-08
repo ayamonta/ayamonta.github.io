@@ -1,5 +1,6 @@
 # ayamonta.github.io
-![01282019](https://github.com/user-attachments/assets/b64b84aa-d6e5-4698-a1b6-27c755d99593)  
+![img of Ayana](https://github.com/user-attachments/assets/b64b84aa-d6e5-4698-a1b6-27c755d99593)  
+<img src="https://github.com/user-attachments/assets/b64b84aa-d6e5-4698-a1b6-27c755d99593" width="100">
 Ayana Tran  
 
 [View my LinkedIn page](linkedin.com/in/ayatn)
