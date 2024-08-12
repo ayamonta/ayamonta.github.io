@@ -1,5 +1,5 @@
 [View My LinkedIn Page](https://linkedin.com/in/ayatn)  
-[View My Resume](https://docs.google.com/document/d/1l4_YMyhfF8gUQmlOto9MoW_6nddZVTHT/edit?usp=sharing&ouid=117276215845349264631&rtpof=true&sd=true)  
+[View My Resume](https://docs.google.com/document/d/1lgeOCugxlW1ogbaqnxUX_nxhoT7ZUaNc/edit?usp=drivesdk&ouid=117276215845349264631&rtpof=true&sd=true)  
 
 <img src="https://github.com/user-attachments/assets/b64b84aa-d6e5-4698-a1b6-27c755d99593" width="100"><br>
 Ayana Tran  
